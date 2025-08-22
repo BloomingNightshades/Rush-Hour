@@ -8,3 +8,7 @@
                                     " -  # 1 Itrapped glazer i love itrapped yayayayay !!!    <img width="185" height="23" alt="image" src="https://github.com/user-attachments/assets/aadef7e4-a12a-4148-93c3-60a0eb464e90" />
 
                    
+                                                                                                                                                                         None of the images on this prof belongs 2 me !
+                                                              
+                                   
+                                   
